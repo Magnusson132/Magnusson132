@@ -7,4 +7,4 @@
 - 🤔 I’m looking for help with getting a internship at a Game Studio in Stockholm.
 - 💬 Ask me about making some music for your game, or creative puzzle ideas for you next co-op game!
 - 📫 How to reach me: texas.magnusson@gmail.com
-- ⚡ Fun fact: A pixel is not a square
+- ⚡ Fun fact: Sharks are older than trees.
